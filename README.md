@@ -1,0 +1,1 @@
+# mafia-vk-app
